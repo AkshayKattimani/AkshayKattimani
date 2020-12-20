@@ -1,4 +1,4 @@
-### Hi there, I'm Akshay Kattimani 👋
+### Hi there, I'm Akshay👋
 
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators
